@@ -1,0 +1,2 @@
+# technol
+techno
